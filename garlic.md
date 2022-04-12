@@ -1,0 +1,1 @@
+One clove is enough to scare any vampire.  
